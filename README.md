@@ -5,6 +5,6 @@
 ```
 ### facebook fake phishing page
 ©️ To view this as page [click here](https://hockkk.000webhostapp.com/) 
- 🔵<h3>Its a phishing page so don't enter real information in that page if you enter anything then i can saw </h3>
+ 🔵<h3>Its a phishing page  </h3>
 
 🟢<h4>i am creating this page for education purpose only </h4>🟢
