@@ -3,8 +3,8 @@
 ```
 𝐯𝐞𝐧𝐤𝐚𝐭𝐞𝐬𝐡
 ```
-### facebook fake phishing page
+### facebook fake  page
 ©️ To view this as page [click here](https://hockkk.000webhostapp.com/) 
- 🔵<h3>Its a phishing page  </h3>
 
-🟢<h4>i am creating this page for education purpose only </h4>🟢
+
+🟢<h4>i just created this page for education purpose only </h4>🟢
